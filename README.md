@@ -1,0 +1,1 @@
+# interglobe-aviation-equity-research-model
